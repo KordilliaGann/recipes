@@ -7,3 +7,4 @@
 1. 1 teaspoon vegetable oil
 1. 2 cups water
 1. 1 cup distilled white vinegar
+1. 5 cups tomatoes
